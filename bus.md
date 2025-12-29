@@ -12,6 +12,7 @@ https://bawglobal.en.made-in-china.com/product/fmNpHtrJBVYU/China-BAW-Hiace-Mini
 
 Negotiable
 https://www.usedtruckbus.com/quality-33376070-toyota-hiace-used-mini-bus-for-sale-17-luxury-seats-high-roof
+https://www.usedtruckbus.com/sale-36719220-diesel-engine-bus-yutong-t7-17seats-automatic-transmission-petrol-2018-second-hand-17-seater.html
 
 16500
 https://www.cn-dfmtruck.com/passenger-vehicle-1560717/57734373.html
